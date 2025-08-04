@@ -1,1 +1,0 @@
-# PraticalQuiz2
